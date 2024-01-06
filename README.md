@@ -1,7 +1,7 @@
-- 👋 Y'- Ima Luna Chick Weirdo
+- 👋 Y'- I'm Olive Feint
 - 👀 I’m interested in ... 🔥
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on 🦄👸🏻...
+- 💞️ I’m looking to collaborate on 👸🏻🐝...
 - 📫 How to reach me ...🐳🐳🐳🐳🐳🔮🧝‍♂️
 
 <!---
