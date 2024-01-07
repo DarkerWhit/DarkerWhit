@@ -1,8 +1,8 @@
 - 👋 I'm Darker Whit
-- 👀 I’m interested in ... nothing
-- 🌱 I’m currently learning ... nothing 
-- 💞️ I’m looking to collaborate on nothing 
-- 📫 How to reach me ... don't 
+- 👀 I’m interested in ... 😊
+- 🌱 I’m currently learning ... 🥰 
+- 💞️ I’m looking to collaborate on 👸🏻☮️ 
+- 📫 How to reach me ... 💜 
 
 <!---
 DarkerWhit/DarkerWhit is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
