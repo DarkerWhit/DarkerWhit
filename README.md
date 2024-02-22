@@ -1,6 +1,7 @@
 👋 A1: @AaronSwartz # I'm Olive Feint
-👀 I’m interested in ... 🔥
+👀 I’m interested in ... 🔥🫒
 🌱 I’m currently learning ...
+⁉️Que Queb, ia also who
 💞️ I’m looking to collaborate on 👸🏻🐝...
 📫 How to reach me ...🐳🐳🐳🐳🐳🔮🧝‍♂️
  
